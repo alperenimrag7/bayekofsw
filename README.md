@@ -1,3 +1,2 @@
-BAYEK OF SİWA
 
 
